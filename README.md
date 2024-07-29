@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **HTML,CSS And JavaScript**
 
-- 📫 How to reach me **shanmukhk2000@gmail.com**
+- 📫 How to reach me **shanmukhakuner@gmail.com**
 
 - ⚡ Fun fact **I Think I am A cool guy**
 
